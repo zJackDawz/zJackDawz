@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @zJackDawz
 - 👀 I’m interested in something?
-- 🌱 I’m currently learning idk :(
+- 🌱 I’m currently develop myself.
